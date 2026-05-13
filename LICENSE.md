@@ -1,4 +1,4 @@
-# 
+# Canva for macOS elite Plugin: vector export & export to SVG offers the most advanced Canva for macOS plugin, with vector export and export to SVG. Ideal for professional designers
 
 
 
